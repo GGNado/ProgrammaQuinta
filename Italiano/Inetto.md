@@ -1,0 +1,1 @@
+L'individuo incapace di realizzare le proprie ambizioni e di inserirsi positivamente nella società borghese.

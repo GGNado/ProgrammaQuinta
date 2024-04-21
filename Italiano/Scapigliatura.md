@@ -1,0 +1,7 @@
+- Milanese
+- Artisti che hanno stile di vita sregolato
+- Ribellione verso la società borghese
+- 1860-1890
+- Scapigliatura rappresenta l'ambiente irruento
+- Imitano i francesi bohemien
+- 

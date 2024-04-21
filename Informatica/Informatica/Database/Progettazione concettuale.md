@@ -1,0 +1,2 @@
+- Si crea il diagramma ER (entità associazione) che rappresenta le associazioni delle entità
+- La cardinalità indica quante volte un elemento può essere in relazione con altri elementi

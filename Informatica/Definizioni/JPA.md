@@ -1,0 +1,4 @@
+- Java persistent API
+- Fa parte dei framework di [[Informatica/Definizioni/Spring]]
+- Alternativa per java per [[ORM]]
+- Si basa su [[Hibernate]]

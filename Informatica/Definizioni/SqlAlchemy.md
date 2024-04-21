@@ -1,0 +1,3 @@
+- Alternativa a [[JPA]] per python
+- Framework
+- Gestisce la persistenza degli oggetti python in database, offrendo un mapping oggetto-relazionale ([[ORM]]).

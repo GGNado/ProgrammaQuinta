@@ -1,0 +1,10 @@
+- Nasce a Valdicastello nel 1835
+- Sostenitore del classicismo
+- Nel 1857 muore il fratello dante
+- Nominato professore all'università di Bologna
+- Matura idee repubblicane
+- Nel 1863 pubblica l'inno a satana
+- Nel 1868 pubblica Levia Gravia
+- A roma scrive Rime nuove e Odi barbare
+- Muore a bologna nel 1903
+- Poeta-Vate

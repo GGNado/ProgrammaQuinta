@@ -1,0 +1,1 @@
+2) HO scelta l'immagine numero 2 perchè descrive un tramonto, lo si nota dalle nuvole arancioni, noto un senso di pace dovuto al paesa 

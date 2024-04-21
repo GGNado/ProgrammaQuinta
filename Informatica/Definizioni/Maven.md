@@ -1,0 +1,3 @@
+- Gestore di pacchetti
+- Usato in java
+- Ci permette di semplificare l'inserimento di dipendenze

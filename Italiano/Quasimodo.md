@@ -1,0 +1,6 @@
+## Poetica
+### La fase ermetica
+La produzione di Quasimodo si colloca nell'ambito dell'ermetismo ed è raccolta nel volume "Ed è subito sera". In queste opere, si riscontra un riferimento ispirativo al "Porto sepolto" di Ungaretti. Tuttavia, Quasimodo non si distingue dagli altri poeti ermetici per la centralità assegnata al ricordo della terra natale, ovvero una Sicilia mitizzata e idealizzata come un mondo incontaminato dell'infanzia. La sua figura si lega alla concezione del poeta esule, caratterizzato da una condizione di estraneità e solitudine. Quasimodo adotta uno stile prezioso e aulico, arricchito da metafore e analogie.
+
+### Dopo la guerra
+L'esperienza della guerra induce un cambiamento nel poeta, che si orienta verso posizioni impegnate sia in campo politico che letterario, dando vita a poesie civili. Quasimodo scrive diverse raccolte, tra cui "Giorno dopo giorno" e "La vita non è sogno". In particolare, nella descrizione degli eventi bellici in "Giorno dopo giorno", si percepisce lo sforzo del poeta nel superare l'aristocratico isolamento della lirica pura. L'urgenza del momento spinge il poeta a riflettere sulla funzione della poesia, chiamata a dare voce alla sofferenza collettiva. Dal punto di vista stilistico, prevale una volontà comunicativa che utilizza forme espressive tradizionali.

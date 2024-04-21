@@ -1,0 +1,4 @@
+Riassumi la novella in un massimo di 10 righe
+1) Racconta la storia di un contadino, Don Silvestro, che accumula la "roba," cioè le ricchezze, nel corso della sua vita. La trama si concentra sulla rivalità tra Don Silvestro e un altro contadino, Padron 'Ntoni, per la proprietà di un terreno. La storia esplora la brama di potere e la disgregazione delle relazioni umane a causa della lotta per il possesso della terra, mettendo in luce i contrasti sociali e l'avidità. "La roba" è un importante esempio del realismo letterario italiano e offre uno sguardo critico sulla società rurale dell'epoca.
+2) Verga utilizza il paesaggio per contestualizzare la vita dei contadini e per riflettere la sua dura realtà.
+3) può essere considerata comica da alcuni punti di vista perché presenta una sorta di ironia e sarcasmo nel destino dei personaggi principali, Don Silvestro e Padron 'Ntoni
